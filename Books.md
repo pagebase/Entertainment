@@ -1,2 +1,8 @@
 1. ~~[**Limitless** by *Jim Kwik*](https://github.com/pagebase/Entertainment-Management/blob/main/Book%20Notes/Limitless_by_Jim_Kwik.md)~~ (10 Sep 2025)
 2. [**Atomic Habit** by *James Clear*](#)
+3. [**Getting Things Done** by *David Allen*](#)
+4. [**The Checklist Manifesto** by *Atul Gawande*](#)
+5. [**Eat That Frog!** by *Brian Tracy*](#)
+6. [**The 7 Habits of Highly Effective People** by *Stephen R. Covey*](#)
+7. [**Essentialism** by *Greg McKeown*](#)
+8. [**Thinking, Fast and Slow** by *Daniel Kahneman*](#)
