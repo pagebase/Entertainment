@@ -24,3 +24,4 @@
 24. ~~[TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic)~~ (13 Feb 2026)
 25. [David](https://youtu.be/gWgyI6_lR0A)
 26. [All quiet on the western front](https://youtu.be/hf8EYbVxtCY)
+27. ~~[Mercy](https://www.youtube.com/watch?v=dSS4yqd0x6o)~~ (6 Mar 2026)
