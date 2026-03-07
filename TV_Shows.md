@@ -69,4 +69,4 @@
 69. [3 body problem](https://youtu.be/SdvzhCL7vIA)
 70. [Baby reindeer](https://youtu.be/eafm1gB6SCM)
 71. [Ripley](https://youtu.be/0ri2biYLeaI)
-72. [Loki](https://youtu.be/nW948Va-l10?si=u8qeDweihXll0Ol6) (1 Mar 2025)
+72. ~~[Loki](https://youtu.be/nW948Va-l10?si=u8qeDweihXll0Ol6)~~ (1 Mar 2025)
