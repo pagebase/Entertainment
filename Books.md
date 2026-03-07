@@ -7,3 +7,4 @@
 7. [**Essentialism** by *Greg McKeown*](#)
 8. [**Thinking, Fast and Slow** by *Daniel Kahneman*](#)
 9. [**Love Machines: How Artificial Intelligence is Transforming Our Relationships** by *James Muldoon*](#)
+10. [**Feeding the Machine** by *Callum Cant and James Muldoon*](#)
