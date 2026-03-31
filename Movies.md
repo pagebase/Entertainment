@@ -17,3 +17,4 @@
 23. ~~[TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic)~~ (13 Feb 2026)
 24. [David](https://youtu.be/gWgyI6_lR0A)
 26. ~~[Mercy](https://www.youtube.com/watch?v=dSS4yqd0x6o)~~ (6 Mar 2026)
+27. ~~[One battle after another](https://www.youtube.com/watch?v=feOQFKv2Lw4&t=3)~~ (1 Apr 2026)
