@@ -14,13 +14,6 @@
 14. ~~[Kingdom of the planet of the apes](https://www.youtube.com/watch?v=XtFI7SNtVpY&t=146)~~
 15. ~~[Ballerina](https://www.youtube.com/watch?v=0FSwsrFpkbw&t=5)~~
 16. ~~[G.I. Joe: Retaliation](https://www.youtube.com/watch?v=bd3JmlIxQXM&t=113)~~
-17. [Into the wild](https://www.youtube.com/watch?v=XZG1FzyB8DI)
-18. [Venom](https://www.youtube.com/watch?v=u9Mv98Gr5pY)
-19. [The house of dynamite](https://youtu.be/0w6wUqWU3yU?feature=shared)
-20. [Detroit](https://youtu.be/HFeWsDpy9y0?si=MShx87XZSHKmeXck)
-21. [Polar](https://www.youtube.com/watch?v=oMHwRal-AR8&t=84)
-22. [Lucy](https://www.youtube.com/watch?v=bN7ksFEVO9U&t=18)
 23. ~~[TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic)~~ (13 Feb 2026)
 24. [David](https://youtu.be/gWgyI6_lR0A)
-25. [All quiet on the western front](https://youtu.be/hf8EYbVxtCY)
 26. ~~[Mercy](https://www.youtube.com/watch?v=dSS4yqd0x6o)~~ (6 Mar 2026)
