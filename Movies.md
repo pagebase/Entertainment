@@ -14,7 +14,6 @@
 14. ~~[Kingdom of the planet of the apes](https://www.youtube.com/watch?v=XtFI7SNtVpY&t=146)~~
 15. ~~[Ballerina](https://www.youtube.com/watch?v=0FSwsrFpkbw&t=5)~~
 16. ~~[G.I. Joe: Retaliation](https://www.youtube.com/watch?v=bd3JmlIxQXM&t=113)~~
-23. ~~[TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic)~~ (13 Feb 2026)
-24. [David](https://youtu.be/gWgyI6_lR0A)
-26. ~~[Mercy](https://www.youtube.com/watch?v=dSS4yqd0x6o)~~ (6 Mar 2026)
-27. ~~[One battle after another](https://www.youtube.com/watch?v=feOQFKv2Lw4&t=3)~~ (1 Apr 2026)
+17. ~~[TRON:Ares](https://www.youtube.com/watch?v=YShVEXb7-ic)~~ (13 Feb 2026)
+18. ~~[Mercy](https://www.youtube.com/watch?v=dSS4yqd0x6o)~~ (6 Mar 2026)
+19. ~~[One battle after another](https://www.youtube.com/watch?v=feOQFKv2Lw4&t=3)~~ (1 Apr 2026)
