@@ -21,3 +21,5 @@
 21. ~~[JUMANJI: WELCOME TO THE JUNGLE](https://youtu.be/2QKg5SZ_35I?si=iZD1gNNICOi6qpN-)~~
 22. ~~[JUMANJI: THE NEXT LEVEL](https://youtu.be/rBxcF-r9Ibs?si=DcS-yuNuPA4RmYJ9)~~
 23. ~~[The Dictator](https://youtu.be/BegO9nKUsBY?si=5xs4o-G7Lkp3C2SG)~~
+24. ~~[The Wolf of Wall Street](https://youtu.be/iszwuX1AK6A?si=G0vPZ7siF1-LSPAo)~~
+25. ~~[Oppenheimer](https://youtu.be/uYPbbksJxIg?si=KZQKDoG8w7f8Rt4Z)~~
