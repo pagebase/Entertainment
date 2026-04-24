@@ -23,3 +23,5 @@
 23. ~~[The Dictator](https://youtu.be/BegO9nKUsBY?si=5xs4o-G7Lkp3C2SG)~~
 24. ~~[The Wolf of Wall Street](https://youtu.be/iszwuX1AK6A?si=G0vPZ7siF1-LSPAo)~~
 25. ~~[Oppenheimer](https://youtu.be/uYPbbksJxIg?si=KZQKDoG8w7f8Rt4Z)~~
+26. [Sherlock Holmes](https://www.youtube.com/watch?v=iKUzhzustok)
+27. [Sherlock Holmes: A Game Of Shadows](https://www.youtube.com/watch?v=DpxtbtnC1u8)
