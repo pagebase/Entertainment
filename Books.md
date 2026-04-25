@@ -13,3 +13,4 @@
 13. [**Dopamine Detox: A Short Guide to Remove Distractions and Get Your Brain to Do Hard Things** by *Thibaut Meurisse*](#)
 14. [**Master Your Emotions: A Practical Guide to Overcome Negativity and Better Manage Your Feelings** by *Thibaut Meurisse*](#)
 15. [**Man's Search for Meaning** by *Viktor Frankl*](#)
+16. [Daily Rituals: How Artists Work](#)
