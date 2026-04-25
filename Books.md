@@ -15,3 +15,4 @@
 15. [**Man's Search for Meaning** by *Viktor Frankl*](#)
 16. [**Daily Rituals: How Artists Work** by *Mason Currey*](#)
 17. [**Dictionary of Analytical Psychology** by *Carl Jung*](#)
+18. [**The Adventures of Tom Sawyer** by *Mark Twain*](#)
