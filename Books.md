@@ -14,3 +14,4 @@
 14. [**Master Your Emotions: A Practical Guide to Overcome Negativity and Better Manage Your Feelings** by *Thibaut Meurisse*](#)
 15. [**Man's Search for Meaning** by *Viktor Frankl*](#)
 16. [**Daily Rituals: How Artists Work** by *Mason Currey*](#)
+17. [**Dictionary of Analytical Psychology** by *Carl Jung*](#)
