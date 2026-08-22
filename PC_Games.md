@@ -1,0 +1,15 @@
+1. ~~[GTA V](https://youtu.be/wB5Xt_2Rh9M)~~
+2. [RDR 2](#)
+3. [Cyberepunk 2077](#)
+4. ~~[UNCHARTED 4: A Thief's End](https://youtu.be/d1fFEP9OFPI)~~
+5. [Hogwarts Legacy](https://youtu.be/wNfZ8vJi4L8)
+6. [CALL OF DUTY WW2](https://youtu.be/jAChlMWt45s)
+7. [CALL OF DUTY VANGUARD](https://youtu.be/GtnLfj3hrCo)
+8. [THE LAST OF US PART 1](https://youtu.be/y99DqGw-jG4)
+9. [THE LAST OF US 2](https://youtu.be/XE5xZSd-lzk)
+10. [SPIDER-MAN](https://youtu.be/LetoCFtmveo)
+11. [SPIDER-MAN The Movie Game](https://youtu.be/sinzjrHmBJk)
+12. [SHADOW OF THE TOMB RAIDER](https://youtu.be/vBCeSQSCrqY)
+13. [A WAY OUT](https://youtu.be/G5LQWKfwi5A)
+14. [DETROIT BECOME HUMAN ](https://youtu.be/0aoHlwS0i0I)
+15. [Elden Ring](#)
